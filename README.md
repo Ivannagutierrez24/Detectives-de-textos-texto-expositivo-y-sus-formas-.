@@ -1,1 +1,1 @@
-# Detectives-de-textos-texto-expositivo-y-sus-formas-.
+# Detectives-de-texto-expositivo-y-sus-formas-.
